@@ -1,1 +1,1 @@
-# Regresyonel.github.io
+# Psikolojikdanisman.me
