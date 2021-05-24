@@ -1,1 +1,2 @@
 # Psikolojikdanisman.me
+# Text.com
