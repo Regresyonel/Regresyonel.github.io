@@ -1,2 +1,2 @@
 # Psikolojikdanisman.me
-# Text.com
+ Seni seviyorsam bundan sanane
